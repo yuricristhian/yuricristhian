@@ -1,4 +1,4 @@
-![I'm in the penultimate semester of electronic engineering at UNIFEI](https://www.wit.ie/images/made/images/uploads/Courses_Pics/shutterstock_69576301_1000_300_c1.jpg)
+![I'm in the penultimate semester of electronic engineering at UNIFEI](https://i.pinimg.com/originals/09/04/ff/0904ff9b2fa3a5bebb8a5f813d8ae70a.jpg)
 ### Hi there 👋, my name is Yuri
 #### I'm in the penultimate semester of electronic engineering at UNIFEI
 
